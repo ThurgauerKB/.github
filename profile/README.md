@@ -1,1 +1,1 @@
-# Thurgauer Kantonalbank - Fürs ganze Leben
+# Thurgauer Kantonalbank - Mehr als eine Bank
